@@ -10,3 +10,7 @@
 
 
 ## *Had done the half payment to create furniture (Desks and chairs ) 
+
+
+![SputnikCharity1](https://user-images.githubusercontent.com/87104609/197123611-f76e5c8a-7ff2-4bc8-8e5a-c9457af6227f.jpg)
+![SputnikCharity2](https://user-images.githubusercontent.com/87104609/197123653-3284f4b7-b533-48d3-a779-b89865644663.jpg)
